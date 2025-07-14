@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cyber security and digital forensics 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me preciouspendo43@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...he
 - ⚡ Fun fact: ... energy is the way to go
 
 <!---
